@@ -1,1 +1,1 @@
-Roe Moderation Alt Yapısıdır Çalındığında Gerekli İşlem Uygulanacaktır
+✶Róe#0296 Moderation Alt Yapısıdır Çalındığında Gerekli İşlem Uygulanacaktır
